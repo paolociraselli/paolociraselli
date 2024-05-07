@@ -1,4 +1,4 @@
-👋 Hi, I’m @paolociraselli Hi, I’m @paolociraselli. I'm happy to be here and embark on this journey to become a full stack web developer.
+👋 Hi, I’m @paolociraselli. I'm happy to be here and embark on this journey to become a full stack web developer.
 My objective is to make a passion my main job and to be able to grow professionally.
 🌱 I’m currently learning. I attend a training course to be able to achieve all the necessary skills and obtain certifications.
 Thank you
